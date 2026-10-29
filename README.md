@@ -20,11 +20,12 @@ quinn quinniekuipers@outlook.com
 | m | a | c | o | l | l | e | g | e | ! | ! | ! |
 | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 | 11 | 12 |
 
-![status](images/image1.png)
+![status](images/image2.png)
 
 
 
 Aljune P
+
 
 
 
