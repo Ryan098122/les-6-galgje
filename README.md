@@ -24,7 +24,7 @@ quinn quinniekuipers@outlook.com
 
 
 
-Aljune P
+Aljune P quinn e Aljune N
 
 
 
